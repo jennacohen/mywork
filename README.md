@@ -54,7 +54,7 @@ Printing Hate is an investigation into how white-owned newspapers have aided and
 
 ### Donate to PBS NewsHour
 
-Working alongside the marketing and fundraising teams at the PBS NewsHour, I've created original assets, from moving web advertisments to engaging email newsletter templates, used in a variety of campaigns.
+Working alongside the marketing, giving, and editorial teams at the PBS NewsHour, I've created original assets – from web advertisments and email templates to popups and scalable event flyers – used in a variety of branding, fundraising and event campaigns.
 
 **My role:**
 
